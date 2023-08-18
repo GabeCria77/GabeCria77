@@ -1,7 +1,7 @@
 Tl- 👋 Hi, I’m @GabeCria77
 - 👀 I’m interested in money
 - 🌱 I’m currently learning The dance
-- 💞️ I’m looking to collaborate on the my girlfriend
+- 💞️ I’m looking to collaborate on drive car
 - 📫 How to reach me (n sei psor)
 
 <!---
